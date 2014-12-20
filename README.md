@@ -8,3 +8,7 @@ https://docs.google.com/document/d/1JRCsCIvk_AOtUAqHsq4u74Pdoze76dVzpowYynHFc7w/
 
 Project Resources:
 https://drive.google.com/folderview?id=0B5tFIUdTcqiqYW1ZWWNRc2xwRG8&usp=sharing
+
+Project Creator:
+Kevin Saxman
+kwsaxman@gmail.com
